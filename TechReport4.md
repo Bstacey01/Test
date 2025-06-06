@@ -1,4 +1,4 @@
-Nintendo Switch 2 hands on impression
+**Nintendo Switch 2 hands on impression**
 
 
 The Nintendo Switch 2 released this week and with it some new games! Here are the details.
